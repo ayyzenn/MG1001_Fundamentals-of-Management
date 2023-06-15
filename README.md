@@ -1,0 +1,1 @@
+# MG1001_Fundamentals-of-Management
